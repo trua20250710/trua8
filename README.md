@@ -10,4 +10,4 @@
 
 这些平台提供丰富的国产性午夜直播资源，分类详细，更新及时，方便用户快速查找喜欢的影片。每个视频页面包含详细的时长、主演、清晰度等信息，支持高清视频播放，并根据网络环境自动优化画质，保证流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua8 ）</span>
